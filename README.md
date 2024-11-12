@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @karayellyagmurr 
-- Who I am: A Tech Recruiter, Future developer (maybe) 🤥 mother of 2 dragons 
-- 🌱 I’m currently try to learning Java , kotlin
+- Who I am: A Tech Recruiter, Future developer (maybe) 🤥 
+- 🌱 I’m currently try to learning everythinggg ...
 - 📫 You can reach out to me via linkedin or e-mail 
